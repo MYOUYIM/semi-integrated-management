@@ -1,1 +1,0 @@
-# semi-integrated-management
